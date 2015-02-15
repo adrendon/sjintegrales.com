@@ -1,1 +1,0 @@
-# sjintegrales.com
